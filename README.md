@@ -9,7 +9,7 @@
   </a>
 </p>
 
-&nbsp; <p align="center"> Sign! -> [Strawpage!](https://retrostarz.straw.page/higugetoist) [Fluffle!](https://fluffle.cc/cursedstars) [Spacehey!](https://spacehey.com/shrimpyartist)
+&nbsp; <p align="center"> Sign! -> [Strawpage!](https://retrostarz.straw.page/higugetoist) [Rentry!](https://rentry.co/letters2higugeto) [Spacehey!](https://spacehey.com/shrimpyartist)
 
 <p align="center"> Might not be on tab! so Whisp2int especially if I have that I'm doing smth in my name 
 <p align="center"> Do not take inspo from my ponies ! 
