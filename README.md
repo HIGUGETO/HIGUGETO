@@ -1,5 +1,5 @@
 &nbsp; <p align="center"> ![Static Badge](https://img.shields.io/badge/Higu-Geto-%237c48a3?style=plastic&labelColor=%23d1ab52) 
-&nbsp; <p align="center"> $\textcolor{rgb(198,165,90)}{\textsf{Thanks @pt-stars for letting me have}}$ $\textcolor{rgb(127,81,161)}{\textsf{the title of Geto Suguru of ponytown!!!}}$
+&nbsp; <p align="center"> $\textcolor{rgb(198,165,90)}{\textsf{Thanks}}$ [@pt-stars](https://github.com/pt-stars) $\textcolor{rgb(198,165,90)}{\textsf{for letting me have}}$ $\textcolor{rgb(127,81,161)}{\textsf{the title of Geto Suguru of ponytown!!!}}$
 
 ![](https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/Untitled158_20260422172410.png) <p align="center"> 
 &nbsp; <p align="center"> ![Static Badge](https://img.shields.io/badge/Law-Reason-%237c48a3?style=plastic&labelColor=%23d1ab52)
